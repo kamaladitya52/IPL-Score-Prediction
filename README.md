@@ -1,1 +1,11 @@
-<img width="1152" alt="image" src="https://github.com/user-attachments/assets/f5d2b861-e302-4905-bbb1-146de3c24c5a">
+![IPL-Score-Prediction_pages-to-jpg-0001](https://github.com/user-attachments/assets/7f9b2d5d-8300-47c1-bce0-c21fdd581cfe)
+![IPL-Score-Prediction_pages-to-jpg-0002](https://github.com/user-attachments/assets/e68bfc41-22ff-49b5-97d7-d716ae36b0fb)
+![IPL-Score-Prediction_pages-to-jpg-0003](https://github.com/user-attachments/assets/f0a5dc81-7e6f-4392-bf66-bf088836eb7f)
+![IPL-Score-Prediction_pages-to-jpg-0004](https://github.com/user-attachments/assets/095d4934-28f6-4e47-9bb2-95af17e479f6)
+![IPL-Score-Prediction_pages-to-jpg-0005](https://github.com/user-attachments/assets/51ec51e5-0112-4331-85fe-a3970a7dd6cf)
+![IPL-Score-Prediction_pages-to-jpg-0006](https://github.com/user-attachments/assets/9b6ae816-95fb-4734-90cc-131814a0a3c5)
+![IPL-Score-Prediction_pages-to-jpg-0007](https://github.com/user-attachments/assets/7f888e91-0ec5-4622-a0a9-cdd3ffc6c899)
+![IPL-Score-Prediction_pages-to-jpg-0008](https://github.com/user-attachments/assets/59912f18-eaf3-4a34-a799-a381dca68dfd)
+![IPL-Score-Prediction_pages-to-jpg-0009](https://github.com/user-attachments/assets/95c76ed9-e4eb-49ee-8ea6-e846f420be16)
+![IPL-Score-Prediction_pages-to-jpg-0010](https://github.com/user-attachments/assets/febfad6f-fc27-41d5-9b16-da3f7651d8a9)
+![IPL-Score-Prediction_pages-to-jpg-0011](https://github.com/user-attachments/assets/2830d149-cdb5-4015-85a5-088fba1b51c6)
